@@ -26,7 +26,7 @@ Each drawing has been scanned or photographed at a high resolution to preserve a
 
 You can find more of my art and connect with me on these platforms:
 
--   **Instagram**: www.instagram.com/__lovable__person__
+-   **Instagram**: https://www.instagram.com/__lovable__person__/
 - 
 
 ### 📝 Feedback
